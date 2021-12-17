@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other nerds
 - 🥅 2022 Goals: Contribute more to Open Source projects and Develop skills
-- ⚡ Fun fact: I love to do anything
+- ⚡ Fun fact: I love to do everything
 
 ### Connect with me:
 
