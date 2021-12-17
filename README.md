@@ -1,11 +1,11 @@
 ### Hi there, I'm Victoriya - aka hristova23 👋 
 
-## I'm a Sport Enthusiast, Schoolgirl and Developer!!!
+## I'm a Sport Enthusiast, Schoolgirl, Nerd and a Rookie Developer!!!
 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to draw and play all sports
+- 👯 I’m looking to collaborate with other nerds
+- 🥅 2022 Goals: Contribute more to Open Source projects and Develop skills
+- ⚡ Fun fact: I love to do anything
 
 ### Connect with me:
 
