@@ -3,9 +3,9 @@
 ## I'm a Sport Enthusiast, Schoolgirl, Nerd and a Rookie Developer!!!
 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other nerds
-- 🥅 2022 Goals: Contribute more to Open Source projects and Develop skills
-- ⚡ Fun fact: I love to do everything
+- 👯 I’m looking to collaborate with others
+- 🥅 2022 Goals: Develop skills & Find a interesting job
+- ⚡ Fun fact: Eating is my passion 🐷
 
 ### Connect with me:
 
