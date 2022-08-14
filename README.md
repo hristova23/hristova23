@@ -4,8 +4,8 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with others
-- 🥅 2022 Goals: Develop skills & Find a interesting job
-- ⚡ Fun fact: Eating is my passion 🐷
+- 🥅 2022 Goals: Develop more skills & Find an interesting job
+- ⚡ Fun fact: Eating is my biggest passion 🐷
 
 ### Connect with me:
 
