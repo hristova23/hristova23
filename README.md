@@ -1,7 +1,4 @@
 ### Hi there 👋 
-
-## I'm a sport enthusiast, still a schoolgirl, and a rookie .NET Dev!
-
 - 🌱 I’m currently learning react and improving my .NET skills
 - 👯 I’m looking to collaborate with others
 - 🥅 2023 Goals: find an exciting job
