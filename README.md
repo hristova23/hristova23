@@ -2,7 +2,7 @@
 - 🌱 I’m currently learning react and improving my .NET skills
 - 👯 I’m looking to collaborate with others
 - 🥅 2023 Goals: find an exciting job
-- ⚡ Hobbies: books, basketball, gymnastics, snowboard, pet my cat
+- ⚡ Hobbies: reading, basketball, gymnastics, coding, travelling and snowboarding
 
 ### Connect with me:
 
